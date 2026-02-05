@@ -22,4 +22,6 @@ for no matter what you are selling you should know how they act at each stage, w
 
 1. Prepare: *(find as much as you possibly can about the person, thier needs you can meet)*
 2. Connect: *(introduce, tuning in to the customer: voice, speech pattern, speed...)*
-3. Discover: *(dig deep to uncover the customers unmet needs)*
+3. Discover: *(dig deep to uncover the customers unmet needs, generate rapport, find commonality)*
+4. Match *(demonstrate how our product/service matches the unmet needs)*
+5. Close
