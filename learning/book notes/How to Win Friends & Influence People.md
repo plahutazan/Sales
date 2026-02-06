@@ -1,0 +1,1 @@
+1. People are always going to think they are doing the right thing, so never punish or look down on anyone, always praise never punish.
